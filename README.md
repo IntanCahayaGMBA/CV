@@ -1,5 +1,5 @@
 # CV 
-# Intan baru
+# Intan
 
 ## Education
 My interest in business and management led me to pursue a Bachelor's degree in Management at Udayana University. I actively participated in extracurricular activities, research projects, and community service programs which enriched my perspective on how business operate in different sectors.
